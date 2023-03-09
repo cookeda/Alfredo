@@ -10,7 +10,7 @@
 
 ###### Calories: _535kcal_
 
-###### *_Carbohydrates: _10g_*
+###### *Carbohydrates: _10g_*
 
 <img src="Alfredo/istockphoto-185274400-1024x1024.jpg" alt="istockphoto-185274400-1024x1024" style="zoom:40%;" />
 
