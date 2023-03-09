@@ -12,7 +12,7 @@
 
 ###### *Carbohydrates: _10g_*
 
-<img src="Alfredo/istockphoto-185274400-1024x1024.jpg" alt="istockphoto-185274400-1024x1024" style="zoom:40%;" />
+<img src="istockphoto-185274400-1024x1024.jpg" alt="istockphoto-185274400-1024x1024" style="zoom:40%;" />
 
 #### Ingredients
 
