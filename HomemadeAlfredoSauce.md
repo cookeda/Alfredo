@@ -30,3 +30,10 @@
 2. Simmer over low heat for 2 minutes.
 3. Whisk in garlic and seasonings.
 4. Whisk cheese in, do not do it all at once.
+
+#### Notes
+- This is just a base recipe and is meant to combine with other dishes. 
+- Adjust seasonings to your liking.
+- You can also adjust the amount of butter used.
+
+https://thesaltymarshmallow.com/best-homemade-alfredo-sauce/#recipe
