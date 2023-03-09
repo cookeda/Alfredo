@@ -12,7 +12,7 @@
 
 ###### *_Carbohydrates: _10g_*
 
-<img src="u/css/cookeda/ENG-3695/Alfredo/istockphoto-185274400-1024x1024.jpg" alt="istockphoto-185274400-1024x1024" style="zoom:40%;" />
+<img src="Alfredo/istockphoto-185274400-1024x1024.jpg" alt="istockphoto-185274400-1024x1024" style="zoom:40%;" />
 
 #### Ingredients
 
